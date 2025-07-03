@@ -1,6 +1,6 @@
 <h2>Library Genesis镜像网站，国内可用官网入口</h2>
 <p>Library Genesis（简称LibGen）是一个公益性的文献在线查询和电子书下载网站，号称“帮助全人类知识无版权传播”的计划。该网站提供超过270万本图书和5800万篇科学论文，涵盖自然科学、社会科学、人文科学、工程技术等多个领域。LibGen的资源不仅包括学术文献，还有小说、漫画、杂志等多种类型，支持多种语言的搜索和下载。用户无需注册，即可免费下载资源，网站界面简洁，无广告干扰。</p>
-<p><strong>一键访问：</strong><a href="https://www.xxsnav.com/sites/17472.html" target="_blank"><strong>Library Genesis最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://librarygenesis.ggonav.com/" target="_blank"><strong>Library Genesis最新网址</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/4K电影/无损音乐资源下载资源包</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <h4><strong>功能特点</strong></h4>
